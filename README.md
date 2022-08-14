@@ -1,4 +1,4 @@
-✨[Developer auf MineRoyale](https://discord.gg/2DZvPM4k)
+✨[Owner From TropyMC](https://discord.gg/KSgqjkakPP)
 
 [![Discord](https://discord.c99.nl/widget/theme-1/875245302939004938.png)](#)
 
